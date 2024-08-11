@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janhavi455
-- 👀 I’m love Coding 24x7..
+- 👀 I love Coding 24x7..
 - 🌱 I’m currently learning Artificial Intelligence & Data Science...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..janhavisakhare455@gmail.com
